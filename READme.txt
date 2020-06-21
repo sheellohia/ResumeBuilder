@@ -1,0 +1,1 @@
+Download RESUME.7z and unzip it. Start wuth signup and simply create your resume download it. It is easy to use. Ignore the REsumeBuilder.rar
